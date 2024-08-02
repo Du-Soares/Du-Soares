@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Eduardo Soares @Du-Soares
 - 👀 I’m interested in new technology and new experiences 
 - 🌱 I’m currently learning Gestão em Tecnologia da Informação and some matters about it 
-- 💞️ I’m looking 
+- 💞️ I’m looking to improve my own business
 - 📫 How to reach me email k43du5@gmail.com
 - 😄 Pronouns: Mr.
 - ⚡ Fun fact: I'm have been more studies know that I'm Old than I was young.
